@@ -16,7 +16,7 @@ I’m Héctor Garrido, data scientist with experience in the academic, social an
 
 If you think we can do something interesting together, feel free to reach out!
 
-📫h.f.g.r.1996@gmail.com (I know, I know...)
+📫hector.garrido.r@protonmail.com
 <!--
 3
 ### Hi there 👋
